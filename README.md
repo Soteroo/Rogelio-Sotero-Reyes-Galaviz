@@ -34,10 +34,10 @@ I am currently leading projects with students focused on social and environmenta
 
 ---
 
-### ☕ More about me
+### More about me
 Outside of academics, any topic involving photography, art and culture, gastronomy, history, politics, psychology, architecture, science, and local musical bands is always welcome. 
 
-### 📬 Let's Connect
+### Let's Connect
 
 *   📧 **Email:** [rreyes@ucaribe.edu.mx](mailto:rreyes@ucaribe.edu.mx)
 *   🆔 **ORCID:** [0000-0003-3610-965X](https://orcid.org/0000-0003-3610-965X)
